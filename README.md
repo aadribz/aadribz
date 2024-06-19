@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @aadribz
-- Biotech Engineer(education) and Data Analyst(current employment)
